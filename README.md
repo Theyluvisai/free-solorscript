@@ -1,1 +1,1 @@
-thid script is only for people how i let 
+this script is only for people how i let 
